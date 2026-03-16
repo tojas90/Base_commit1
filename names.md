@@ -1,5 +1,5 @@
 Temtoe Bolj
-Opeemi olaj
+Opeei olaj
 Fiyesimi Bolaji
 Feyikemi Bolaji
 Oluremi Bolaji
