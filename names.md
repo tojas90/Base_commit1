@@ -6,7 +6,7 @@ Olmi Bi
 Tao Ba
 ke Bol
 Bi bolaji
-elte Bol
+ete Bol
 Dneolaj
 eni Bola
 Ie Bola
