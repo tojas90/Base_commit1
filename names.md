@@ -10,7 +10,7 @@ ete Bol
 Dneolaj
 eni Bola
 Ie Bola
-Dawap ola
+Dawp ola
 Adae Boa
 Josep
 Isac Bo
