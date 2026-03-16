@@ -7,7 +7,7 @@ Tao Ba
 ke Bol
 Bi bola
 ete Bol
-Dneola
+Dn ola
 en Bol
 Ie Bola
 Dawp ola
