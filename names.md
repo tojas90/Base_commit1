@@ -13,7 +13,7 @@ Ifeey Bola
 Dawap ola
 Adeae Boa
 Josep
-Isaac Bol
+Isac Bol
 Modupe
 Boluwa
 Komolafe
