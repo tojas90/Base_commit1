@@ -11,7 +11,7 @@ Daneolaj
 enio Bola
 Ifeey Bola
 Dawap olaj
-Adewae Bolaji
+Adewae Boaji
 Josephine Bola
 Isaac Bola
 Modupe
