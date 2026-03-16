@@ -3,7 +3,7 @@ Oei oj
 Fi Boai
 Fmi Bo
 Olmi Boji
-Taiwo Bolaji
+Tao Bolaji
 kenny Bolaji
 Bisola bolaji
 elevate Bolaji
