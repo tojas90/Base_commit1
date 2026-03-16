@@ -7,7 +7,7 @@ Tao Ba
 ken Bol
 Bi bolaji
 elte Bol
-Daneolaj
+Dneolaj
 enio Bola
 Ifeey Bola
 Dawap olaj
