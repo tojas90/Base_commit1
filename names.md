@@ -8,7 +8,7 @@ ke Bol
 Bi bola
 ete Bol
 Dneolaj
-eni Bol
+en Bol
 Ie Bola
 Dawp ola
 Adae Boa
