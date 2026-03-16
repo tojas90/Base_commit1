@@ -15,6 +15,6 @@ Adae Boa
 Josep
 Iac Bo
 Mod pe
-Boluwa
+Bo uwa
 Komolafe
 Joseph
