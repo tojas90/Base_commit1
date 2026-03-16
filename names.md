@@ -10,7 +10,7 @@ elte Bol
 Daneolaj
 eniol Bolaj
 Ifeey Bola
-Dawapo Bolaj
+Dawapo olaj
 Adewale Bolaji
 Josephine Bolaji
 Isaac Bolaji
