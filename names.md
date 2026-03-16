@@ -4,7 +4,7 @@ Fi Boai
 Fmi Bo
 Olmi Bi
 Tao Ba
-ken Bol
+ke Bol
 Bi bolaji
 elte Bol
 Dneolaj
