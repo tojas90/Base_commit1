@@ -17,4 +17,4 @@ Iac Bo
 Mod pe
 Bo uwa
 Kom fe
-Joseph
+Jo seh
