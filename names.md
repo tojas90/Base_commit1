@@ -1,4 +1,4 @@
-Temtoe Bolj
+Teme Bolj
 Opeei olaj
 Fieim Boai
 Fmi Bo
