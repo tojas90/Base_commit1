@@ -9,7 +9,7 @@ Bi boa
 ete Bol
 Dn ola
 en Bol
-Ie Bola
+Ie Bo
 Dp ola
 Adae Boa
 Josep
