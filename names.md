@@ -12,7 +12,7 @@ enio Bola
 Ifeey Bola
 Dawap olaj
 Adewae Bolaji
-Josephine Bolaj
+Josephine Bola
 Isaac Bola
 Modupe
 Boluwa
