@@ -2,7 +2,7 @@ Te Bolj
 Oei oj
 Fi Boai
 Fmi Bo
-Olmi Boji
+Olmi Bi
 Tao Bolaji
 kenny Bolaji
 Bisola bolaji
