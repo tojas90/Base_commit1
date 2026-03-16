@@ -1,4 +1,4 @@
-Temtoe Bolaji
+Temtoe Bolaj
 Opeyemi Bolaji
 Fiyesimi Bolaji
 Feyikemi Bolaji
