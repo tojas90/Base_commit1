@@ -9,7 +9,7 @@ Bi bolaji
 elte Bol
 DanieBolaji
 eniola Bolaji
-Ifeseyi Bolaji
+Ifeseyi Bolaj
 Dawapo Bolaji
 Adewale Bolaji
 Josephine Bolaji
