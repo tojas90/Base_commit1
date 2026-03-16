@@ -1,4 +1,4 @@
-Te Bolj
+Te olj
 Oei oj
 Fi Boai
 Fmi Bo
