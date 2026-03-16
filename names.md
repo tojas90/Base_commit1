@@ -1,5 +1,5 @@
 Temtoe Bolj
-Opeyemi Bolaji
+Opeemi Bolaji
 Fiyesimi Bolaji
 Feyikemi Bolaji
 Oluremi Bolaji
