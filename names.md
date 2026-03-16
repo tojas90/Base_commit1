@@ -2,7 +2,7 @@ Te olj
 Oei oj
 Fi Boai
 Fmi Bo
-Olmi Bi
+Omi Bi
 Tao Ba
 ke Bol
 Bi boa
