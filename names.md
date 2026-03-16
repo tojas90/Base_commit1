@@ -11,7 +11,7 @@ Daneolaj
 enio Bola
 Ifeey Bola
 Dawap olaj
-Adeae Boaji
+Adeae Boa
 Josepoa
 Isaac Bola
 Modupe
