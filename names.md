@@ -1,4 +1,4 @@
-Temitope Bolaji
+Temtope Bolaji
 Opeyemi Bolaji
 Fiyesimi Bolaji
 Feyikemi Bolaji
