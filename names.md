@@ -4,7 +4,7 @@ Fi Boai
 Fmi Bo
 Olmi Bi
 Tao Bolaji
-kenny Bolaji
+kenny Boli
 Bi bolaji
 elevate Bolaji
 Daniel Bolaji
