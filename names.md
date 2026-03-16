@@ -8,7 +8,7 @@ ken Bol
 Bi bolaji
 elte Bol
 Dneolaj
-enio Bola
+eni Bola
 Ifee Bola
 Dawap ola
 Adae Boa
