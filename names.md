@@ -13,7 +13,7 @@ Ifeey Bola
 Dawap olaj
 Adewae Bolaji
 Josephine Bolaji
-Isaac Bolaji
+Isaac Bola
 Modupe
 Boluwa
 Komolafe
