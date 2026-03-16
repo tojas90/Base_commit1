@@ -1,6 +1,6 @@
 Temtoe Bolj
 Opeei olaj
-Fiyesimi Bolai
+Fiesimi Bolai
 Feyikemi Bolaji
 Oluremi Bolaji
 Taiwo Bolaji
