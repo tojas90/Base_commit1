@@ -8,7 +8,7 @@ ken Bol
 Bi bolaji
 elte Bol
 Daneolaj
-eniola Bolaji
+eniol Bolaji
 Ifeseyi Bolaj
 Dawapo Bolaji
 Adewale Bolaji
