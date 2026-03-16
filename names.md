@@ -13,7 +13,7 @@ Ie Bola
 Dp ola
 Adae Boa
 Josep
-Isac Bo
+Iac Bo
 Modpe
 Boluwa
 Komolafe
