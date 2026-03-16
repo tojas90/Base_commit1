@@ -10,7 +10,7 @@ elte Bol
 Dneolaj
 enio Bola
 Ifeey Bola
-Dawap olaj
+Dawap ola
 Adeae Boa
 Josep
 Isaac Bola
