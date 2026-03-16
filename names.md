@@ -9,7 +9,7 @@ Bi bolaji
 elte Bol
 Dneolaj
 enio Bola
-Ifeey Bola
+Ifee Bola
 Dawap ola
 Adeae Boa
 Josep
