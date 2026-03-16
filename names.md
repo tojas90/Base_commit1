@@ -4,7 +4,7 @@ Fi Boai
 Fmi Bo
 Omi Bi
 Tao Ba
-ke Bol
+ke Bo
 Bi boa
 ete Bol
 Dn ola
