@@ -3,7 +3,7 @@ Oei oj
 Fi Boai
 Fmi Bo
 Olmi Bi
-Tao Baji
+Tao Ba
 kenny Boli
 Bi bolaji
 elevate Bolaji
