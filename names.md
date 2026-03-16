@@ -11,7 +11,7 @@ Dneolaj
 enio Bola
 Ifee Bola
 Dawap ola
-Adeae Boa
+Adae Boa
 Josep
 Isac Bo
 Modpe
