@@ -5,7 +5,7 @@ Fmi Bo
 Olmi Bi
 Tao Ba
 ke Bol
-Bi bolaj
+Bi bola
 ete Bol
 Dneolaj
 eni Bola
