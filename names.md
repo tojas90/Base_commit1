@@ -7,7 +7,7 @@ Tao Ba
 ken Bol
 Bi bolaji
 elte Bol
-Daniel Bolaji
+DanieBolaji
 eniola Bolaji
 Ifeseyi Bolaji
 Dawapo Bolaji
