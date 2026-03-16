@@ -5,7 +5,7 @@ Fmi Bo
 Olmi Bi
 Tao Ba
 ke Bol
-Bi bola
+Bi boa
 ete Bol
 Dn ola
 en Bol
