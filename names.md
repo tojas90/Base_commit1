@@ -1,7 +1,7 @@
 Temtoe Bolj
 Opeei olaj
 Fieim Boai
-Feyikemi Bolaji
+Feyiemi Bolaji
 Oluremi Bolaji
 Taiwo Bolaji
 kenny Bolaji
