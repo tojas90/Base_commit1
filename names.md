@@ -7,7 +7,7 @@ Tao Ba
 ken Bol
 Bi bolaji
 elte Bol
-DanieBolaj
+DaneBolaj
 eniola Bolaji
 Ifeseyi Bolaj
 Dawapo Bolaji
