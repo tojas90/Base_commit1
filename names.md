@@ -12,7 +12,7 @@ enio Bola
 Ifeey Bola
 Dawap olaj
 Adewae Boaji
-JosephBola
+Josepola
 Isaac Bola
 Modupe
 Boluwa
