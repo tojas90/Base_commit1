@@ -4,7 +4,7 @@ Fi Boai
 Fmi Bo
 Olmi Bi
 Tao Ba
-kenny Boli
+kenny Bol
 Bi bolaji
 elte Bola
 Daniel Bolaji
