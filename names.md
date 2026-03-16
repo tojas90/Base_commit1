@@ -14,7 +14,7 @@ Dawap ola
 Adeae Boa
 Josep
 Isac Bol
-Modupe
+Modpe
 Boluwa
 Komolafe
 Joseph
