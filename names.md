@@ -5,7 +5,7 @@ Fmi Bo
 Olmi Bi
 Tao Bolaji
 kenny Bolaji
-Bisola bolaji
+Bi bolaji
 elevate Bolaji
 Daniel Bolaji
 eniola Bolaji
