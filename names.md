@@ -10,7 +10,7 @@ ete Bol
 Dn ola
 en Bol
 Ie Bola
-Dawp ola
+Dp ola
 Adae Boa
 Josep
 Isac Bo
