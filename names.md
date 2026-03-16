@@ -16,5 +16,5 @@ Josep
 Iac Bo
 Mod pe
 Bo uwa
-Komolafe
+Kom fe
 Joseph
