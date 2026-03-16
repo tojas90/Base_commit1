@@ -1,5 +1,5 @@
 Te Bolj
-Oei olaj
+Oei oj
 Fi Boai
 Fmi Bo
 Olmi Bolaji
