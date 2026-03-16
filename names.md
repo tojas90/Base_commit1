@@ -6,7 +6,7 @@ Olmi Bi
 Tao Ba
 kenny Boli
 Bi bolaji
-elevate Bolaji
+elte Bolaji
 Daniel Bolaji
 eniola Bolaji
 Ifeseyi Bolaji
